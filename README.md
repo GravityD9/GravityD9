@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Aspiring Finance Professional
 --------------------
 
-Aspiring finance professional eager to contribute analytical rigor and entrepreneurial mindset whilst bringing strong foundation in financial analysis, quantitative research, and corporate finance concepts with passion for advisory services in M&A, fundraising, and value creation.
+A regular guy trying to break into finance, interested in investment and market research. 
 
 *   🌍  I'm based in Bengaluru and working in Risk
 *   ✉️  You can contact me at [hrishikesh1305@gmail.com](mailto:hrishikesh1305@gmail.com)
