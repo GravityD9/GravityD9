@@ -8,7 +8,7 @@ Aspiring finance professional eager to contribute analytical rigor and entrepren
 
 *   🌍  I'm based in Bengaluru
 *   ✉️  You can contact me at [hrishikesh1305@gmail.com](mailto:hrishikesh1305@gmail.com)
-*   🧠  I'm currently learning CFA Level 1
+*   🧠  I'm currently pursuing CFA Level 1
 
 Socials
                 
