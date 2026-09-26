@@ -1,12 +1,12 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) I am Hrishikesh
+Hey ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) I am Hrishikesh
 ===========================================================================================================================================
 
-Aspiring Finance Professional
+Aspiring Finance Conformist, kidding
 --------------------
 
-A regular guy trying to break into finance, interested in investment and market research. 
+Just someone trying to break into finance, interested in investment and market research. 
 
-*   🌍  I'm based in Bengaluru and working in Risk
+*   🌍  Based out of Bengaluru 
 *   ✉️  You can contact me at [hrishikesh1305@gmail.com](mailto:hrishikesh1305@gmail.com)
 *   🧠  I'm currently pursuing CFA Level 1
 
