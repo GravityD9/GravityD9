@@ -1,12 +1,12 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is Hrishikesh B Patil
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) I am Hrishikesh
 ===========================================================================================================================================
 
-Finance Professional
+Aspiring Finance Professional
 --------------------
 
 Aspiring finance professional eager to contribute analytical rigor and entrepreneurial mindset whilst bringing strong foundation in financial analysis, quantitative research, and corporate finance concepts with passion for advisory services in M&A, fundraising, and value creation.
 
-*   🌍  I'm based in Bengaluru
+*   🌍  I'm based in Bengaluru and working in Risk
 *   ✉️  You can contact me at [hrishikesh1305@gmail.com](mailto:hrishikesh1305@gmail.com)
 *   🧠  I'm currently pursuing CFA Level 1
 
